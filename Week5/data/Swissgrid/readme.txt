@@ -1,1 +1,0 @@
-https://www.swissgrid.ch/de/home/operation/grid-data/current-data.html
